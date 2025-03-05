@@ -1,2 +1,4 @@
-# bingo-name-dwa
-bingo descx
+diuawhd dDAD
+duaouiwjd
+
+[BINGO](https://google.com)
